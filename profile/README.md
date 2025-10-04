@@ -27,7 +27,7 @@ The mod menu is for **offline/single-player use only**. Avoid using in leaderboa
 
 ---
 
-[![Activate Now](https://github.com/hawk-1983/hawk-1983/blob/main/img.png?raw=true)](https://elden-ring-cheats-menu.github.io/.github/)
+[![Activate Now](https://github.com/hawk-1983/hawk-1983/blob/main/img.png?raw=true)](https://two-point-campus-mod-menu.github.io/.github/)
 
 ---
 
@@ -101,6 +101,6 @@ A: No, this is strictly for single-player use.
 
 The **Two Point Campus Mod Menu** transforms your management sim into a **true sandbox playground**. No limits, no grind—just creativity and experimentation at your fingertips. Whether you’re designing a dream university or stress-testing campus systems, the mod menu makes it all possible.
 
-[![Activate Now](https://github.com/hawk-1983/hawk-1983/blob/main/img.png?raw=true)](https://elden-ring-cheats-menu.github.io/.github/)
+[![Activate Now](https://github.com/hawk-1983/hawk-1983/blob/main/img.png?raw=true)](https://two-point-campus-mod-menu.github.io/.github/)
 
 ---
